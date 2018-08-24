@@ -5,9 +5,9 @@
 Date: 2018-08-24
 Tags: *#dnb* *#pop* **#vocal*    
   
-[![Quantum Energy - Two Hearts (August 2018)](quantum_energy_-_two_hearts__august_2018__400x400.jpg)](https://docs.google.com/uc?id=1FqLUo4yY3RY-FYMmOt_kKLC6BAXM5LQC&export=download)  
+[![Quantum Energy - Two Hearts (August 2018)](quantum_energy_-_two_hearts__august_2018__400x400.jpg)](https://docs.google.com/uc?id=1wYqNDPzuFXMWjeP81O1NPFEFjT5dkPwq&export=download)  
 
-You can download it here: [**DOWNLOAD**](https://docs.google.com/uc?id=1FqLUo4yY3RY-FYMmOt_kKLC6BAXM5LQC&export=download).
+You can download it here: [**DOWNLOAD**](https://docs.google.com/uc?id=1wYqNDPzuFXMWjeP81O1NPFEFjT5dkPwq&export=download).
 
 **Tracklist:**  
 
