@@ -7,8 +7,8 @@ Tags: *#dnb* *#pop* **#vocal*
   
 [![Quantum Energy - Two Hearts (August 2018)](quantum_energy_-_two_hearts__august_2018__400x400.jpg)](https://docs.google.com/uc?id=1wYqNDPzuFXMWjeP81O1NPFEFjT5dkPwq&export=download)  
 
-You can [**DOWNLOAD**](https://docs.google.com/uc?id=1wYqNDPzuFXMWjeP81O1NPFEFjT5dkPwq&export=download) it or listen 
-on [**MIXCLOUD**](https://www.mixcloud.com/quantumenergy/two-hearts-august-2018/).
+You can [**DOWNLOAD**](https://docs.google.com/uc?id=1wYqNDPzuFXMWjeP81O1NPFEFjT5dkPwq&export=download) it 
+(178MB, 1h 18min) or listen at [**MIXCLOUD**](https://www.mixcloud.com/quantumenergy/two-hearts-august-2018/).
 
 **Tracklist:**  
 
