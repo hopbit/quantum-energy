@@ -1,6 +1,8 @@
-# Quantum Energy Sets 
+![Quantum Energy Sets](./quantum-energy-logo.jpg)
 
-----
+[Soundcloud](https://soundcloud.com/quantumenergy/tracks), [Mixcloud](https://www.mixcloud.com/quantumenergy/), [Spotify](https://open.spotify.com/playlist/41aDriNFS6jYpioCR6cTe5), [Facebook](https://www.facebook.com/QuantumEnergyPodcast), [Twitter](https://soundcloud.com/quantumenergy)
+
+# Sets
 
 * **[Two Hearts (August 2018)](./two-hearts__august-2018.md)**
 * [Winter solstice (December 2012)](./winter-solstice-december-2012.md)
