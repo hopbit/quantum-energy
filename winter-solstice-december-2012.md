@@ -7,7 +7,7 @@ Tags: dnb, jazzy dnb, liquid dnb, tech step
 
 [![Quantum Energy](https://drive.google.com/uc?export=download&id=0BzB_BNja1f1KN0pPS0t2bjN0SW8)](https://www.mixcloud.com/quantumenergy/winter-solstice-december-2012/)
 
-* [**DOWNLOAD (186MB, 82min)**](https://drive.google.com/file/d/0B_4_ynm06YZIQ3hqRTdwR1pnRUk/edit?usp=sharing)
+* [**DOWNLOAD (186MB, 82min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LMsAsBUQG8ljYvhKA?e=VctjoN)
 * [**MIXCLOUD (82min)**](https://www.mixcloud.com/quantumenergy/winter-solstice-december-2012/)
 
 
