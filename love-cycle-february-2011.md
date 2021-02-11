@@ -5,9 +5,11 @@
 Date: 2011-02-13    
 Tags: dnb, neuro funk, liquid dnb    
 
-[![Quantum Energy](https://drive.google.com/uc?export=download&id=0BzB_BNja1f1KQjRza1RLbThnTTA)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIY1VxS0VSRl81TWs)
+[![Quantum Energy](https://drive.google.com/uc?export=download&id=0BzB_BNja1f1KQjRza1RLbThnTTA)](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/)
 
-[**DOWNLOAD (93MB, 78MIN)**](https://drive.google.com/file/d/0B_4_ynm06YZIY1VxS0VSRl81TWs/edit?usp=sharing)
+* [Listen on MIXCLOUD](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/) 
+* [Listen on SOUNDCLOUD](https://soundcloud.com/quantumenergy/quantum-energy-love-cycle) 
+* [**Download MP3 (93MB, 78MIN)**](https://drive.google.com/file/d/0B_4_ynm06YZIY1VxS0VSRl81TWs/edit?usp=sharing)
 
 TRACKLIST:  
 
@@ -27,7 +29,8 @@ TRACKLIST:
 * calvertron, tim healey ft. sirreal- rock it roll it (pippa trix dirtyloud remix)
 * bassbin twins – skroo (original mix)
 
-All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
+All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
+You can listen them on <a href="https://open.spotify.com/playlist/41aDriNFS6jYpioCR6cTe5?si=lIajGYZ2SzO4K3TCIna5IQ" target="_blank">Spotify</a> as well.  
 Enjoy!
 
 ----
