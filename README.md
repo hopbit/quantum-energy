@@ -1,6 +1,6 @@
 ![Quantum Energy Sets](./quantum-energy-logo.jpg)
 
-[Soundcloud](https://soundcloud.com/quantumenergy/tracks), [Mixcloud](https://www.mixcloud.com/quantumenergy/), [YouTube](https://www.youtube.com/channel/UCq-9deAZBK9X8UyfC9ayGVg/videos), [Spotify](https://open.spotify.com/playlist/41aDriNFS6jYpioCR6cTe5), [Instagram](https://www.instagram.com/quantumenergysets/), [Facebook](https://www.facebook.com/QuantumEnergyPodcast), [Twitter](https://twitter.com/quantumnrgsets)
+[Soundcloud](https://soundcloud.com/quantumenergy/tracks), [Mixcloud](https://www.mixcloud.com/quantumenergy/), [YouTube](https://www.youtube.com/channel/UCq-9deAZBK9X8UyfC9ayGVg/videos), [Twitch](https://www.twitch.tv/quantumenergysets), [Spotify](https://open.spotify.com/playlist/41aDriNFS6jYpioCR6cTe5), [Instagram](https://www.instagram.com/quantumenergysets/), [Facebook](https://www.facebook.com/QuantumEnergyPodcast), [Twitter](https://twitter.com/quantumnrgsets)
 
 # Sets
 
