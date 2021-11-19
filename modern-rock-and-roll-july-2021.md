@@ -2,10 +2,10 @@
 
 ----
 
-Date: 2021-07-31
-Tags: **#dnb** **#liquid** **#pop** **#drum and bass**
+Date: 2021-07-31  
+Tags: **#dnb** **#liquid** **#pop** **#drum and bass**  
 
-[![Quantum Energy](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/e/0/f/0/5c0e-50b6-48ae-bdf6-1b19b98defd7)](https://www.mixcloud.com/quantumenergy/modern-rock-roll-july-2021/)
+[![Quantum Energy - Modern Rock & Roll (July 2021)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/e/0/f/0/5c0e-50b6-48ae-bdf6-1b19b98defd7)](https://www.mixcloud.com/quantumenergy/modern-rock-roll-july-2021/)
 
 * [**Listen on MIXCLOUD**](https://www.mixcloud.com/quantumenergy/modern-rock-roll-july-2021/)
 * [**Download MP3 (123MB)**](https://1drv.ms/u/s!AmzuuXrjf51v38YeBlHjxLT_9vQTBQ?e=5zGoN7)
