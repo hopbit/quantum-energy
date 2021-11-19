@@ -5,9 +5,10 @@
 Date: 2011-11-18    
 Tags: dnb, liquid dnb    
 
-[![Quantum Energy](https://drive.google.com/uc?export=download&id=0BzB_BNja1f1KUkVLWTdCLWVKTDA)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIY3RrUW1CNk1BaXM)
+[![Quantum Energy - Everyday Something New (November 2011)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/c/d/6/e/ca8a-3700-49f7-9ce4-8f01b3688723)](https://www.mixcloud.com/quantumenergy/everyday-something-new-november-2011/)
 
-[**DOWNLOAD (135MB, 59min)**](https://drive.google.com/file/d/0B_4_ynm06YZIY3RrUW1CNk1BaXM/edit?usp=sharing)
+* **[Listen on MIXCLOUD](https://www.mixcloud.com/quantumenergy/everyday-something-new-november-2011/)**
+* **[DOWNLOAD (135MB)](https://1drv.ms/u/s!AmzuuXrjf51v2LMoU9n4UGnYpJgvXg?e=14jPzh)**
 
 TRACKLIST:  
 
