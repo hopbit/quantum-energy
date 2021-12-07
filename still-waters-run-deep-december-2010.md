@@ -5,10 +5,10 @@
 Date: 2010-12-20    
 Tags: liquid dnb, dnb    
 
-[![Quantum Energy](https://drive.google.com/uc?export=download&id=0BzB_BNja1f1KY1B2aWhMT0syRTg)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIamVCUS12TW1haHM)
+[![Quantum Energy](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/0/f/1/5/9cb0-c41e-4751-a015-26d99a95f4c7)](https://www.mixcloud.com/quantumenergy/still-waters-run-deep-december-2010/)
 
-<!-- DOWNLOAD LINK -->
-[**DOWNLOAD (77MB, 55MIN)**](https://drive.google.com/file/d/0B_4_ynm06YZIamVCUS12TW1haHM/edit?usp=sharing)
+* [**Listen @ MIXCLOUD (55MIN)**](https://www.mixcloud.com/quantumenergy/still-waters-run-deep-december-2010/)
+* [**Download MP3 (77MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LMYZSsqhZOxtu1Ylw)
 
 TRACKLIST:  
 
